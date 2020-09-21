@@ -2,4 +2,4 @@
 
 
 
-[Click here](https://doamin.wwwsale.xyz)
+[Click here](https://wwwsale.xyz)
